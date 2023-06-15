@@ -1,4 +1,4 @@
-### Greetings
+### Junior Programmer, Also Do Games Modding, Feel Free To Contact Me Via Discord: accismus_zeta
 
 <!--
 **SCUMBAG0LEE/SCUMBAG0LEE** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
