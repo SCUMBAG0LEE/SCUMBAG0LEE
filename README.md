@@ -1,4 +1,4 @@
-### Junior Programmer, Also Did Games Modding, Feel Free To Contact Me Via Discord: SCUMBAG0LEE
+### Fresh IT Graduate, Also Did Games Modding, Feel Free To Contact Me Via Discord: SCUMBAG0LEE
 
 <!--
 **SCUMBAG0LEE/SCUMBAG0LEE** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
